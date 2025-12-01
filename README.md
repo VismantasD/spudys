@@ -1,1 +1,0 @@
-# Ūkininkas Kęstas Spūdys
